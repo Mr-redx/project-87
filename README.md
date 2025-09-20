@@ -1,2 +1,2 @@
 # project-87
-For my fav
+For my favourite person
